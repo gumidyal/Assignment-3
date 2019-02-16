@@ -5,5 +5,5 @@ Citations:
 Ally Rogers, Kedam Habte, Kandice Wu, Bella Koures
 
 
-Part D is missing from this assignment because it's already late and we didn't have time to finish.
+Part D is unfinished because it's already late and we didn't have time to finish.
 We did what we could. Thank you for your understanding.
